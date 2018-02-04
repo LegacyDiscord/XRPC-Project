@@ -1,1 +1,1 @@
-////LordLaxz Owns this project
+////Project is owned by Tsumi of Se7ensins.
